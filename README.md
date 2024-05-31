@@ -4,5 +4,3 @@
 - 💞️ I’m looking to collaborate on ... earning money
 - 😄 Pronouns: ... they/them
 - ⚡ Fun fact: ... I hold some world records in a certain game with my friends!
-
-thanks for reading
